@@ -1,1 +1,1 @@
-# walace = caga mole
+# walace = não tem aura
